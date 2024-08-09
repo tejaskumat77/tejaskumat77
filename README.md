@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tejaskumat77
 - 👀 I’m interested in Cricket
 - 🌱 I’m currently learning How to Learn
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on many upcoming projects
 - 📫 How to reach me ..just think about me i'll be there
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
